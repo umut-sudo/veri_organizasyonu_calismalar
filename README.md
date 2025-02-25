@@ -1,0 +1,1 @@
+# veri_organizasyonu_-al-malar
