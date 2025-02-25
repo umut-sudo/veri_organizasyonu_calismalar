@@ -1,1 +1,1 @@
-# veri_organizasyonu_-al-malar
+# veri_organizasyonu_calismalar
